@@ -2,7 +2,7 @@
 
 **285/Hayete285** 
 
-![Capture d’écran 2023-09-19 073337](https://github.com/Hayete285/Hayete285/assets/75676939/333b108d-13b7-4c34-9f86-1b9159e9561c)
+![nature-3082832_640](https://github.com/Hayete285/Hayete285/assets/75676939/f634b8e4-656a-4d3c-946e-57a382f1cd56)
 
 
 - 🔭 I’m currently working on ...
