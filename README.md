@@ -10,7 +10,7 @@
 - 👯 I’m looking to collaborate on an type of project.
 - 🤔 I would like to receive help to improve my skills.
 - 💬 You can ask me questions about my current or future accomplishments!
-- 📫 How to reach me: [hayetebens](hayetebens@yahoo.fr)
+- 📫 How to reach me: [hayetebens@yahoo.fr](hayetebens)
 - 😄 Pronouns: she
 - ⚡ Fun fact: According to my loved ones, I will never grow old! Why? Because I love video games and manga!
 -->
