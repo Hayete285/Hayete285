@@ -1,7 +1,5 @@
 ### Hi I AM HAYETE BENS, WELCOME IN MY PROJECT!👋
 
-
-![20220701_100904_resized](https://github.com/Hayete285/Hayete285/assets/75676939/739ebc07-0511-4cd7-87f7-90583760f6f3)
 **285/Hayete285** 
 
 ![image](https://github.com/Hayete285/Hayete285/assets/75676939/e501d14f-8e30-46a9-b762-e56e1f2da7bc)
