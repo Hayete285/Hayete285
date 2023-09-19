@@ -2,7 +2,11 @@
 
 **285/Hayete285** 
 
-![image](https://github.com/Hayete285/Hayete285/assets/75676939/e501d14f-8e30-46a9-b762-e56e1f2da7bc)
+
+
+https://github.com/Hayete285/Hayete285/assets/75676939/693dd758-5dd8-4c81-81e1-d39478688c97
+
+
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
