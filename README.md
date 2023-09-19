@@ -1,9 +1,7 @@
-### Hi there 👋
+### Hi I AM HAYETE BENS, WELCOME IN MY PROJECT!👋
 
 <!--
-**Hayete285/Hayete285** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
+**Hayete285/Hayete285** 
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
