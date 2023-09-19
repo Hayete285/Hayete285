@@ -2,14 +2,7 @@
 
 **285/Hayete285** 
 
-![chrome://fileicon/?path=C%3A%5CUsers%5Ctotos%5CDownloads%5Cnature-3082832_640.jpg&scale=1.25x](NATURE)
-
-
-
-
-
-
-
+![Capture d’écran 2023-09-19 073337](https://github.com/Hayete285/Hayete285/assets/75676939/333b108d-13b7-4c34-9f86-1b9159e9561c)
 
 
 - 🔭 I’m currently working on ...
